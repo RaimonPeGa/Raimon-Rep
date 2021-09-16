@@ -15,4 +15,4 @@ Me gustan las series de TV los videojuegos y salir a la montaña.
 
 Me considero buena persona y buen estudiante, ademàs tengo buena memoria y capacidad de trabajo en equipo.
 
-400 × 300
+![bbbbf0d2948e4ec389e3d95d27bb355d](https://user-images.githubusercontent.com/90827095/133582026-7b0ad592-35c0-4f24-af26-5887e6af35f6.jpeg)
